@@ -7,7 +7,7 @@ My Favorite Series of All Time
 
 > Favorite characters: Asta, Yuno, Yami, and Luck
 
----
+--- 
 
 **Reincarnated As A Slime**
 - Lonely thirty-seven-year-old Satoru Mikami is stuck in a dead-end job, unhappy with his mundane life, but after dying at the hands of a robber, he awakens to a fresh start in a fantasy realm...as a slime monster! As he acclimates to his goopy new existence, his exploits with the other monsters set off a chain of events that will change his new world forever!
